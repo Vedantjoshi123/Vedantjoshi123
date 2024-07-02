@@ -13,7 +13,7 @@
 
 - 📫 How to reach me **vedantjoshi4406@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1w2_PorNhmtRtr2_evcf3v6JjBVQ7n2dc/view?usp=sharing](https://drive.google.com/file/d/1w2_PorNhmtRtr2_evcf3v6JjBVQ7n2dc/view?usp=sharing)
+- 📄 Know about my experiences [https://drive.google.com/file/d/1w2_PorNhmtRtr2_evcf3v6JjBVQ7n2dc/view?usp=sharing](https://drive.google.com/file/d/1LGNoQERpzCUbk71e3paGC9XpGWurO-wr/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
